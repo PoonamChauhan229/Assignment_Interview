@@ -14,5 +14,8 @@ When faced with an unfamiliar task, I'd start by seeking clarification on its re
 
 Task2:
 ## Video Link:
+https://drive.google.com/file/d/1U6DwqOSpFdEvf_TV6tdCh4v3f66lyFgE/view?usp=sharing
 
+The same is uploaded on Youtube As well
+https://www.youtube.com/watch?v=gSeV7anqESw
 
